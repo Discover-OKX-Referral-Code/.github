@@ -6,7 +6,7 @@
 
 When you register with the referral code 96613811, you gain access to multiple advantages that set you up for success:
 
-💵 Welcome Bonus Up to $5,000: Receive free rewards after completing simple tasks like your first deposit, first trade, or staking crypto.
+💵 Welcome Bonus Up to $12,000: Receive free rewards after completing simple tasks like your first deposit, first trade, or staking crypto.
 
 📉 Lower Trading Fees: Enjoy reduced fees across spot and futures markets, helping you retain more of your earnings.
 
